@@ -5,8 +5,9 @@
 - 📫 How to reach me 
     Discord : sz#4498 
     Emails : angelique.cloutier60@yahoo.com
-        sxzuu@yahoo.com 
-    Discord Server : https://discord.gg/jde3wwSVDa (open ticket)
+        sxzuu@yahoo.com
+        
+    Discord Server : https://discord.gg/7GkfBzRQXX (open ticket)
 
 <!---
 0xSxZ/0xSxZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
