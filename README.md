@@ -4,11 +4,11 @@
 - 💞️ I’m looking to collaborate on Veerus Miner
 - 📫 How to reach me 
 
-    Discord : sz#4498 
+    Discord : Yazid#7469 
     
-    Emails : angelique.cloutier60@yahoo.com or sxzuu@yahoo.com
+    Emails : angelique.cloutier60@yahoo.com / sxzuu@yahoo.com
         
-    Discord Server : https://discord.gg/7GkfBzRQXX
+    Discord Server : [https://discord.gg/7GkfBzRQXX](https://discord.gg/CYcKzAX8xD)
 
 <!---
 0xSxZ/0xSxZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
